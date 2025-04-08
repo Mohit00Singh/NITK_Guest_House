@@ -1,1 +1,0 @@
-# NITK-Guest-House
